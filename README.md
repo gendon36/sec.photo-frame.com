@@ -1,1 +1,0 @@
-# sec.photo-frame.com
